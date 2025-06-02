@@ -1,2 +1,2 @@
 # Agrinho 2-0-2-5
-© Michael Gäbler / Wikimedia Commons
+Unload wheat by the combine Claas Lexion 584.jpg - © Michael Gäbler / Wikimedia Commons
